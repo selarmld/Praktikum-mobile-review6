@@ -1,3 +1,3 @@
-# Riview 6
+# Review 6
 ### Nama : Syarifah Armilda Syahla 
 ### NIM  : 2209106083 
